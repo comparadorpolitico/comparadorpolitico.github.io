@@ -1,0 +1,1 @@
+# Comparador político
